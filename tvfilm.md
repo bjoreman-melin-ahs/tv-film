@@ -314,3 +314,66 @@ Notera: Denna sida är ständigt under uppbyggnad.
 * Sin city
 * Split second
 * Ladyhawke
+
+#[Avsnitt 175](https://bjoremanmelin.se/podcast/avsnitt-175-Sommarskuggan.html)
+
+* John Wick 3
+* Sommarlov
+* The Great Hack
+
+#[Avsnitt 176](https://bjoremanmelin.se/podcast/avsnitt-176-lite-som-att-ata-papper.html)
+
+* Jumanji: welcome to the jungle
+* Polar
+* Arnold Schwarzeneggers digra produktion
+
+#[Avsnitt 177](https://bjoremanmelin.se/podcast/avsnitt-176-lite-som-att-ata-papper.html)
+
+* Peaky Blinders, säsong 5
+* Westworld
+
+#[Avsnitt 178](https://bjoremanmelin.se/podcast/avsnitt-178-rss-ar-roligt-igen.html)
+
+* For all mankind
+* The morning show
+
+#[Avsnitt 179](https://bjoremanmelin.se/podcast/avsnitt-179-som-wozniak-fast-elak.html)
+
+* Seinfeld
+* Vänner
+
+[Avsnitt 180](https://bjoremanmelin.se/podcast/avsnitt-180-nagonstans-sitter-en-ai-och-skriker-i-panik.html)
+
+* Dark crystal: age of resistance
+* Dark crystal
+* Jim Henson
+
+[Avsnitt 181](https://bjoremanmelin.se/podcast/avsnitt-181-massera-paketen-och-tagga-paketen.html)
+
+* Barry Lyndon
+* Film worker
+* Full Metal Jacket
+
+[Avsnitt 182](https://bjoremanmelin.se/podcast/avsnitt-182-du-uppdaterar-bada-samtidigt-bra-ide.html)
+
+* Mr Robot
+* Westworld
+* Filmworker
+* Leon Vitali
+* Gemini Man
+
+[Avsnitt 183](https://bjoremanmelin.se/podcast/avsnitt-183-pannkaksmiddag.html)
+
+* Mr Robot säsong fyra
+
+[Avsnitt 185](https://bjoremanmelin.se/podcast/avsnitt-185-fock-it.html)
+
+* Dark crystal: age of resistance
+* Dark crystal - originalfilmen
+* Chuck Lorre
+* The Kominsky method
+* Sharp objects
+* Arrival
+* Rapport till himlen
+* Såsom i himmelen
+
