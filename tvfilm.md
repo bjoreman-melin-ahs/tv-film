@@ -5,9 +5,15 @@ permalink: /tvfilm
 ---
 Under åren så har vi betygsatt TV-serier och filmer i vår lilla podd. Här kommer en sammanställning av allt med länkar till IMDB och vårt betyg. 
 
-Vi införde inte betygsskala för filmerna förrän i avsnitt XXX. 
+Vi införde inte betygsskala för filmerna förrän i avsnitt 240. 
 
 Notera: Denna sida är ständigt under uppbyggnad. 
+
+#[Avsnitt 69](https://bjoremanmelin.se/podcast/avsnitt-69-om-det-later-konstigt-i-bakgrunden-sa-ar-det-min-bandrobot.html)
+
+* Arrival
+* Kubo and the two strings
+* 
 
 #[Avsnitt 79](https://www.bjoremanmelin.se/podcast/avsnitt-79-ett-wii-i-spanga.html)
 
