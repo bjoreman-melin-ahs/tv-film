@@ -13,7 +13,6 @@ Notera: Denna sida är ständigt under uppbyggnad.
 
 * Arrival
 * Kubo and the two strings
-* 
 
 #[Avsnitt 79](https://www.bjoremanmelin.se/podcast/avsnitt-79-ett-wii-i-spanga.html)
 
