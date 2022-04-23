@@ -382,3 +382,24 @@ Notera: Denna sida är ständigt under uppbyggnad.
 * Rapport till himlen
 * Såsom i himmelen
 
+Avsnitt 300](https://bjoremanmelin.se/podcast/avsnitt-300-en-mac-mini-som-jast.html)
+
+* The Gentlemen, av Guy Ritchie. Underhållande och rolig. SVT Play. 4/5 BMÅ (J). 
+[Avsnitt 301](https://bjoremanmelin.se/podcast/avsnitt-301-en-kompis-som-korde-os2.html)
+
+* Beck 86: Den gråtande polisen. 4/5 BMÅ (J)
+
+[Avsnitt 302](https://bjoremanmelin.se/podcast/avsnitt-302-det-gar-inga-snowpiercer-till-kalmar.html)
+
+* Taboo. Grötigt och hyfsat intressant drama med Tom Hardy. Netflix. Säsong 1: 3/5 BMÅ (J)
+* Peaky Blinders säsong 6: Jocke har sett de två första avsnitten. 4/5 BMÅ.
+* Death on the nile: 1/5 BMÅ (J)
+* Snowpiercer S03 (Netflix): 2,5/5 BMÅ (C)
+
+[Avsnitt 304](https://bjoremanmelin.se/podcast/avsnitt-304-prismat-i-ekvationen.html)
+* Severance på Apple TV+. (J) 5/5 BMÅ
+* Tolkien. Vacker film om författaren med lite Döda Poeters Sällskap-vibbar. (J) 4/5 BMÅ
+* Peaky Blinders S06. (J) 3/5 BMÅ
+* Harry Palmer (The Ipcress File). Agentserie som utspelar sig på 60-talet i England och Berlin. SVT Play. (J) 3,5/5 BMÅ
+
+
