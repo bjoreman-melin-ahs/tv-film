@@ -382,7 +382,114 @@ Notera: Denna sida är ständigt under uppbyggnad.
 * Rapport till himlen
 * Såsom i himmelen
 
-Avsnitt 300](https://bjoremanmelin.se/podcast/avsnitt-300-en-mac-mini-som-jast.html)
+[Avsnitt 280](https://bjoremanmelin.se/podcast/avsnitt-280-som-kungen-gjorde-forr.html)
+
+* Jocke försöker se Free guy. Somnade halvvägs igenom. 1,5/5 BMÅ (Jocke). 3/5 BMÅ (Fredrik) 2/5 BMÅ (Christian)
+* Sunshine. Jocke ser om. 5/5 BMÅ
+* The King’s Speech. 5/5BMÅ
+* Cake. Underligt drama med Jennifer Aniston. 3/5 BMÅ
+* The shawshank redemption. Jocke ser om. 6/5 BMÅ.
+* Foundation. Baseras på böckerna av Isaac Asimov. Sänds på tv+. 4/5 BMÅ.
+* Six Feet Under. HBO Max. 4/5 BMÅ
+* Dune. Jocke har sett. 5/5 BMÅ
+
+[Avsnitt 281](https://bjoremanmelin.se/podcast/avsnitt-281-Spotifyskapet.html)
+
+* Knives out. Jocke: 4/5BM. Fredrik 4/5 BM.
+* Kastanjemannen (Netflix) 4/5 BM
+* The Vow säsong 1 - serie om NXIVM-kulten i USA. Sänds via HBOMax. 5/5BM.
+* The Lair of the white worm: 1/5BM. (6,0/10 på IMDB)
+* When women rule the world 0,5/5BM. (3.0/10 på IMDB) (regissören/manusförfattarens biografi enligt någon på IMDB: “Sheldon Silverstein is an internationally accomplished producer and writer”.)
+
+[Avsnitt 282](https://bjoremanmelin.se/podcast/avsnitt-282-boraskansla.html)
+
+* Mannen från Mallorca: Bo Widerbergs mästerverk från 1984, baserad på boken “Grisfesten” av Leif G.W Persson. 4/5BMÅ. 7/10 hos IMDB.
+
+[Avsnitt 283](https://bjoremanmelin.se/podcast/avsnitt-283-av-princip-inte.html)
+
+* Den osannolika mördaren. Serie om den misstänkte Palmemördaren Stig Engström. 5/5 BMÅ.
+* Finch. Efter-katastrofen-film på Apple tv+ med Tom Hanks efter manus av bland andra Ivor Powell som var med och producerade Blade Runner. 5/5 BMÅ.
+* Now you see me. Minst sagt rörig film där alla mest tycks springa efter varandra hela tiden. 2,5/5BMÅ (7/10 på IMDB). Har gjorts en uppföljare också, tydligen.
+* Doomday: engelsk apokalyptisk blandning mellan Mad Max och en zombiefilm. Oerhört usel. 1,5/5BMÅ.
+* The Hunt: hyfsat bizarr och riktigt rolig film om ultrarika i USA som roar sig med att jaga kidnappade låginkomsttagare på en inhägnad egendom. 3,5/5BMÅ
+
+[Avsnitt 284](https://bjoremanmelin.se/podcast/avsnitt-284-span-pa-airfryer.html)
+
+* The Pixar Story. 7,8 på IMDB 4/5 BMÅ. Botaniserande bland Pixarfilmer utbryter
+
+[Avsnitt 285](https://bjoremanmelin.se/podcast/avsnitt-285-inte-en-texteditor-for-vuxna.html)
+
+* The Great - vansinnigt rolig och bisarr serie som typ kanske handlar om Katarina den store. HBO Max. 5/5BMÅ (J)
+* Invasion - snyggt filmad men spretig och lite seg serie om alieninvasion. tv+. 3/5BMÅ (J)
+* Get Back - Peter Jacksons sex timmar långa dokumentär om The Beatles sista plattor på Disney+. 5/5BMÅ (J)
+* Foundation S01 sedd. Vacker och för det mesta rätt bra. tv+. 4/5BMÅ (J)
+
+[Avsnitt 286](https://bjoremanmelin.se/podcast/avsnitt-286-airpodsambassador.html)
+
+* No time to die - äntligen har alla sett. 4/5BMÅ
+
+[Avsnitt 287](https://bjoremanmelin.se/podcast/avsnitt-287-christian-star-och-steker-fisk.html)
+
+* Mad Max: fury road håller än
+* Hemlock Grove. 3,5/5BMÅ (J)
+
+[Avsnitt 288](https://bjoremanmelin.se/podcast/avsnitt-288-chips-och-kakfiltret.html)
+
+* The Grand Tour: Carnage a trois. 2,5/5BMÅ
+* Cowboy Bebop: Jocke har sett s01. 3/5BMÅ
+* Red notice. 1,5/5 BMÅ
+* Shang-Chi and the Legend of the Ten Rings 3/5BMÅ
+* Julfilmer: 
+* Die Hard 1, 2
+* Love Actually
+* Notting Hill
+* Sagan om Ringen
+* Claus
+* Eyes Wide Shut
+* The Nightmare Before Christmas
+* Ombytta Roller
+* Gremlins
+
+[Avsnitt 289]
+
+* Encanto: 4/5 BMÅ (C), 4/5 BMÅ (F)
+
+[Avsnitt 290](https://bjoremanmelin.se/podcast/avsnitt-290-ett-slag-under-multiremmen.html)
+
+* Matrix Resurrections: en film som behövde göras lika mycket som de två tidigare uppföljarna. 1/5BMÅ (Jocke). 1,5/5BMÅ (Christian). Fredrik behöver inte se den.
+
+[Avsnitt 291](https://bjoremanmelin.se/podcast/avsnitt-291-quantum-of-oled.html)
+
+* Forbidden Orange. Dokumentärfilm om hur A Clockwork Orange kunde visas i Franco-diktaturens Spanien trots att den var totalförbjuden. 4/5BMÅ (J)
+* Don’t look up. 2,5/5BMÅ (J)
+
+[Avsnitt 293](https://bjoremanmelin.se/podcast/avsnitt-293-jag-har-sim-city-men-inte-covid.html)
+
+* Jocke har sett ALLA Beck-avsnitt. Skakande rapport
+* Gia. Angelina Jolie överraskar med starkt porträtt av fotomodellen som var den första modekändis som dog av Aids 1986. 4/5BMÅ (HBO Max)
+* The West Wing S01-06: 5/5BMÅ
+* After Life säsong 3. Den ska vi se.
+
+[Avsnitt 295](https://bjoremanmelin.se/podcast/avsnitt-295-konsultkramar.html)
+* After Life, säsong 3: 4/5BMÅ
+* Snowpiercer säsong 3: Vi är skeptiska
+
+[Avsnitt 296](https://bjoremanmelin.se/podcast/avsnitt-296-sodermanlands-lan-forutom-gnesta.html)
+
+* Star Wars Episode 1: Jocke ser om med sönerna. 2/5BMÅ.
+* Star Wars Episode 2: Jocke ser om med sönerna. 3/5BMÅ
+* Boba Fett S01: tar sig på slutet, men en misstänkt kort första säsong. Höll inte materialet för mer? 3/5BMÅ.
+* Pam & Tommy: 2/5BMÅ. Lily James är strålande i sin tolkning av Pamela Anderson men i övrigt är serien platt, fånig, exploativ och rätt tråkig.
+* OS i Kanal 5: Mängden reklam är så stor så det är överväldigande.
+* OS på Discovery+: Frånvaron av reklam för 179 kr är så fantastisk att det är överväldigande.
+
+[Avsnitt 297](https://bjoremanmelin.se/podcast/avsnitt-297-alla-behover-en-nicklas.html)
+
+* War of the Worlds. SE01 & 2. Disney+. 3/5BMÅ
+* The King’s Man. 3,5/5BMÅ (J) 2,5/5 BMÅ (C)
+* Beck - 58 minuter. 3/5BMÅ (J) 
+
+[Avsnitt 300](https://bjoremanmelin.se/podcast/avsnitt-300-en-mac-mini-som-jast.html)
 
 * The Gentlemen, av Guy Ritchie. Underhållande och rolig. SVT Play. 4/5 BMÅ (J). 
 [Avsnitt 301](https://bjoremanmelin.se/podcast/avsnitt-301-en-kompis-som-korde-os2.html)
